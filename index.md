@@ -1,4 +1,4 @@
-### Book One
+﻿### Book One
 
 1.	From my grandfather Verus I learned good morals and the government of my temper.
 
@@ -207,4 +207,73 @@
     [of histoories], or in the resolution of syllyogisms, or occupy myself bout the investigation 
     of apperaances in the heaverns; for all these things require the help of gods and foutune.
 
+### Book Two
 
+1.  Begin the moring by saying to yourself, I shall meet witht he busybody, the ungrateful, arrogant,
+    deceitful, envious, unsocial. All these things happen to them by reason of their ignorance of what 
+    is good and evil. But I who have seen the nature of the good that it is beautiful, and of the bad 
+    that is ugly, and the nature of him who does wrong, that it is akin to me, not [only] of the same 
+    blood or seed, but that it participates in [the same] intelligence and [the same] portion of the 
+    divinity, I can neigher be injured by any of them, for no one can fix on me what is ugly, nor can 
+    I be angry with my kinsman, nor hate him, for we are made for co-operation, like feet, like hands,
+    like eyelids, like the rows of the upper and lower teeth. To act aginst one another, then, is 
+    contrary to nature; and it is acting against one another to be vexed and to turn away. 
+
+    每天清晨对你自己说： 我将要遇到好管闲事的人， 忘恩负义的人， 狂妄无礼的人， 欺骗的人， 嫉妒的人， 孤傲的人。 他们
+    所以如此, 乃是因为不能分辨善与恶。 但是我， 只因已了悟那美丽的“善“的性质， 那丑陋的”恶“的性质， 那和我很接近的行
+    恶者本身的性质 -- 他不仅与我在血统上同一来源， 而且具有同样的理性与神圣的本质， 所以我既不会受他们任何一个的伤害（因为
+    没人能把我拖累到堕落里去）， 亦不会对我的同胞发怒而恨他； 我们生来是为合作的， 如双足，两手， 上下眼皮， 上下排的
+    牙齿。所以彼此冲突乃是违反自然的， 表示反感和厌恶便是冲突。
+
+2.  Whatever this that I am, it is a little flesh and breath, and the ruling part. Throw away the books; 
+    no longer distract themselves: it is not allowd; but as if thou wast now dying, despise the flesh; 
+    it is blood and nones and a network, a contexture of nerves, veins, and arteries. See the breath 
+    also, what kind of a thing it is; air, and not always the same, but every moment sent out and again
+    sucked in. the thrid, then, is the ruling part; condider thus: Thou art and old man; no longer let 
+    this be a slave, no longer be pulled by the strings like a puppet to unsocial movements, no longer
+    be either dissatisfied with the present lot, or shrink from the future.
+
+    我之所以为我， 不过是一堆肉， 一口气和一股控制一切的理性。 丢开你的书本！ 不要再被书本所困惑， 那是不可以的。 要像
+    一个垂死的人一般， 轻视那肉体 -- 那不过是一汪子血， 几根骨头， 神经和血管组成的网架。 再看看那一口气， 究竟是什么
+    东西 -- 空气而已， 还不是国定的一口气， 没分钟都要呼出去， 吸进来， 剩下的是理性； 要这样想， 你是个老年人了， 不
+    要再做奴隶， 不要再做被各种私欲所牵挂的傀儡， 不要再令他怨恨现世的命运， 并且恐惧未来的命运。
+ 
+3.  All that is from the gods is full of providence. That which is from fortune is not separated from the 
+    nature of without an interweaving and involution with the things which are ordered by providence. From 
+    thence all things flow; and there is besides necessity, and that which is for the advantage of the whole
+    universe, of which thou art a part. But that is good for every part of nature which the nature of the
+    whole brings, and what serves to maintain this nature. Not the universe is preserved, as by the changes 
+    of the elements so by the changes of things compounded of the elements. Let these principles be enough
+    for thee; let them always be fixed opinions. But cast away the thirst after books, that thou mayest not
+    die murmuring, but cheerfully, truely, and from thy heart thankful to the gods. 
+
+    神的安排都充满了神意， 就是命运的播弄也不是脱离自然的， 也不能脱离由神意支配着的安排与编插。 一切都由神意而来； 不过“必然性” 以及
+    “整个宇宙的福利” （而你只是其中一小部分）， 也是有其作用的。 整个的自然之所产生的， 整个的自然之所进行维系的，对于自然之
+    各个部分亦必有利。但是宇宙之保全则有赖于变化， 不仅是元素变化， 且扩及与由元素复合而成的事物之变化。这样的想法对你是很充分足够
+    的了， 如果你引为原则来看待。 放弃对书本所报的渴望吧， 以便死时了无遗憾， 而能从容不迫从心底里感谢天神。
+
+4.  Remember how long thou hast been putting off these things, and how often thou hast received and opportunity 
+    from the gods, and yet doesn't use it. Thou must now at last perceive of what universe thou art a part, 
+    and of what administrator of the universe thy existence is an efflux, and that a limit of time is fixed for
+    thee, which if thou dost not use for clearning away the clouds from thy mind, it will go and thou wilt go,
+    and it will never return.
+ 
+5.  Every moment think steadily as a Roman and man to do what thou hast in hand with perfect and simple dignity, 
+    and feeling of affection, and freedom, and justice, and to give thyself relief from all other thoughts. And
+    thou wilt give thyself relief if thou doest every act of thy lefe as it were the last, laying aside all
+    carelessness an passionate aversion from the commmands of reason, and all hypocisy, and self-love, and 
+    discontent with the portion which has been given to thee. Thou seest how few the things are, the which if a 
+    man lays hold of, he is able to live a life which flows in quiet, and is like the existence of the gods; 
+    for the gods on their part will require nothing more from him who observes these things. 
+
+6.  Do wrong to yourself, my soul; but thou wilt no longer have the opportunity of honoring thyself. Every man's 
+    life is ufficient. But thine is nearly finished, though thy soul reverences not itself, but places the felicity
+    in the souls of others. 
+
+7.  Do the things external which fall upon thee distract thee? Give thyself time learn something new and good, and
+    cease to be whirled around. But then thou must also avoid being carried about the other way; for thouse too
+    are triflers who have wearied themselves in life by their activity, and yet have no object to which to direct
+    every movment, and, in a word, all their thoughts. 
+
+8.  Through not observing what is in the mind of another a man has seldom been seen to be unhappy; but those who do 
+    not observe the movements of their own minds must of necessity be unhappy. 
