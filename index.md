@@ -277,3 +277,459 @@
 
 8.  Through not observing what is in the mind of another a man has seldom been seen to be unhappy; but those who do 
     not observe the movements of their own minds must of necessity be unhappy. 
+
+
+
+##  The Encheiridion
+
+1.  Of things some are in our power, and others are not. In our power are opinion, movement toward a thing, desire, 
+    aversion (turning from things); and in a word, whatever are our own acts: not in our power are the body, 
+    property, reputation, offices(magisterial power), and in a word, whatever are not our own acts. And things are
+    in our power are by nature free, not subject to restraint nor hindrance: but things are not in our power are 
+    weak, slavish, subject to restraint, in the power of others. Remember then that if you think the things which are
+    by nature slavish to be free, and the things which are in the power of others to be your own, you will be hindered, 
+    you will lament,m you will be disturbed, you will blame both gods and men: but if you think that only which is your 
+    own to be your own, and if you think that what is another's, as it really is, belongs to another, no man will ever
+    compel you, no man will hinder you, you will never blame any man, you will accuse no man, you will do nothing 
+    involuntarilly(against your will),  no man will harm you, you will have no enemy, for you will not suffer any harm.
+
+    If then you desire (aim at) such great thing, remember that you must not (attempt to) lay hold of them with a small effort; 
+    but you must leave alone some things entirely, and postpone others for the present. But if you wish for these things
+    also (such great things), and power (office) and wealth, perhapes you will not gain even these very things (power and wealth)
+    becuase you aim also at those former things (such great things): certainly you will fail in those things throught
+    which alone happiness and freedom are secured. Straightway then practice saying to every harsh apperance, you are an 
+    appearance, and in no manner what you appear to be. Then examine it by the rules which you possess, and by this first
+    and chiefly, whether it relates to the things which are in our power or to the things which are not in our power: and 
+    if it relates to anything which is not in our power, be ready to say, that id does not concern you.
+ 
+2.  Remember that desire contains in it the profession (hope) of obtainning that which you desire; and the prefession (hope) 
+    in aversion (turning from a thing) is that you will not fall into that which you attempt to avoid: and he who fails in 
+    his desire is unfortunate; and he who falls into that which, he would avoid, is unhappy: if then you attempt to avoid
+    only the thing contrary to nature which are within your power, you will not be involved in any of the things which
+    you would avoid. But if you attempt to avoid disease or death or peverty, you will be unhappy. Take away then aversion
+    form all things which are not in our power, and transfer it to the things contrary to nature which are in our power. But
+    destroy desire completely for the present. For if you desire anything which is not in our power, you must be unfortunate: 
+    but of the things in our power, and which it would be good to desire, nothing yet is before you. But employ, only the 
+    power of moving toward an object and retiring from it; and these powers indeed only slightly and with exceptions and with
+    remission.
+ 
+3.  In everthing which please the soul, or supplies a want, or is loved, remember to add this to the (description, notion); 
+    what is the nature of each thing, beginning from the smallest? If you love an earthen vessel, say it is an earthen 
+    vessel which you love; for when it has been broken, you will not be disturbed. If you are kissing your child or wife; 
+    say that it is a human being whom you are kissing, for when the wife or child dies, you will not be disturbed.
+
+4.  When you are going to take in hand any act, remind yourself what kind of an act it is. If you are going to bathe, place
+    before youself what happend in the bathe, some splashing the water, others pushing against one another, other abusing
+    one another, and some stealing: and thus with more safety you will undertake the matter, if you say to yourself, I now
+    intend to bathe, and maintain my will in a manner conformable to nature. And so you will do in every act: for thus if 
+    any hindrance to bathing shall happen, let this thought be ready; it was not this only that intended, but I intended 
+    also to maintain my will in a way conformable to nature; but I shall not maintain it so, if I am vexed at what happens.
+ 
+5.  Men are disturbed not by the things which happen, but by the opinions about the things: for example, death is nothing 
+    terrible, for if it werre, it would have seemed so to Socrates; for the opinion about death, that it is terrible, is
+    terrible thing. When then we are impeded or disturbed or grieved, let us never blame ohters, but ourselves, that is, 
+    our opinions. It is the act of an ill-instructed man to blame others for his own bad condition; it is the act of one
+    who has begun to be instructed, to lay the blame on himself; and of one whose instruction is completed, neither to 
+    blame another, nor himself.
+ 
+6.  Be not elated at any advantage (excellence), which belongs to another. If a horse when he is elated should say, 
+    I am beautiful, one might endure it. But when you are elated, and say, I have a beautiful horse, you must know
+    that you are elated at having a good horse. What then is your own? The use of appearances. Consequently when in
+    the use of apperances you are conformable to nature, then be elated, for then you will be elated at somthing good
+    which is your own.
+
+7.  As on a voyage when the vessel has reached a port, if you go out to get water, it is an amusement by the way to 
+    pick up a shell-fish or some bulb, but you thoughts ought to be dirrected to the ship, and you ought to be constantly
+    watching if the captain should call, and then you must throw away all those things, that you may not be bound and 
+    pitched into the ship like sheep: so in life also, if there be given to you instead of a little bulb and a shell a 
+    wife and child, there will be nothing to prevent (you from taking them). But if the captain should call, run to the 
+    ship, and leave all those things without regard to them. But if you are old, do not even go far from the ship, lest
+    when you are called you make default.
+ 
+8.  Seek not that the things which happen should happen as you wish; but wish the things which happen to be as they are;
+    and you will have a tranquil flow of life.
+
+9.  Disease is an impediment to the body, but not tot he will, unless the will itself chooses. Lameness is an impediment to
+    the leg, but not to the will. And add this reflection on the occasion of everthing, that happens; for you will find 
+    it an impediment to something else, but not to yourself. 
+
+10. On the occasion of every accident (event) that befalls you, remember to turn to youself and inquire what power you have
+    for turning it to use. If you see a fair man or a fair woman, you will find that the power to resist is temperance (continence). 
+    if labor(pain) be resentred to you, you will find that it is endurance. If it be abusive words, you will find it to be
+    patience. And if you have been thus formed to the (proper) habit, the apperances will not carry you along with them.
+ 
+11. Never say about anything, I have lost it, but say I have restored it. Is your child dead? It has been restored. Is your 
+    wife dead? She has been restored. Has your estate beeen taken from you? Has not then this also been restored? BUt he who
+    has taken it from me is a bad man. But what is it to you, by whose hands the giver demanded it back? So long as he may allow
+    you, take care of it as a thing which belongs to another, as travelers do with their inn.
+ 
+12. If you intend to improve, throw away such thoughts as these: if I neglect my affairs, I shall not have the means of living: 
+    unless I chastise my slave, he will be bad. For it is better to die of hunger and so to be released from grief and fear than
+    to live in abundance with perturbation; and it is better for your slave tobe bad thean for you to be unhappy. Begin then 
+    from little things. Is that oil spilled? Is a little wine stolen? Say on the occasion, at such price is sold freedom from 
+    perturbation; at such price is sold tranquility, but nothing is got for nothing. And when you call your slave, consider that 
+    it is possible that he does not hear; and if he does hear, that he will do nothing which you wish. But matters are not so well
+    with hime, but algogether well with you,, that it should be in his power for yhou to be not disturbed. 
+
+13. If you would improve, submit to be considered without sense and foolish with respect to externals. Without sense and foolish with
+    respect to externals. Wish to be considered to know nothing: and if you shall seem to some to be a person of importance, 
+    distrust yourself. For you should know that it is not easy both to keep your will in a condition conformable to nature and (to secure) 
+    external things: but if a man is careful about the one, it is an absolute necessity that he will neglect the other.
+
+14. If you would have your childen and your wife and your firends to live forever, you are silly; for  you would have the things 
+    which are not in your power to be in your power, and the things which belong to others to be yours. So if you would have your 
+    slave to be free from faults, you are a fool; for you would have badness not to be badness, but something else. But if  you wish
+    not to fail in your desires, you are able to do that. Practice then this which you are able to do. He is the master of every man who has
+    the power over the things, which another person withes or does not wish, the power to confer them on him or to take them 
+    away. Whoever then wishes to be free, let him never wish for anything nor avoid anything wich depends on others; if he does 
+    not observe this rule, he must be a slave.
+ 
+15. Remember that in life you ought to behave as at a banquet. Suppose that somthing is carried round and is oppsite to you. 
+    Strech out your hand and take a portion with decency: Suppose that it passes by you. Do not detain it. "Suppose that it is 
+    not yet come to you. Do not send your desire forward to it, but wait until it is opposite to you. Do so with respect to
+    children, so with respect to a wife, so with respect to magisterial offices, so with respect to wealth, and you will be 
+    some time a worthy partner of the banquets of the gods. But if you take none of the things which are sent before, and even
+    despise them, then you will be not only a fellow-banqueter witht the gods, but also a parner with them in power. For by 
+    acting thus Diogenes and Heracleitus and those like them were deservedly divine, and were so called. 
+
+16. Whe you see a person weeping in sorrow either when a child goes abroad or when he is dead, or when the man has lost his
+    property, take care that the apperance do not hurry you away with it, is it he were suffering in external things. But 
+    straightway make a distinction in your own main, and be in readiness to say, it is not that which has happended that afflicts 
+    this man, for ti does not afflict another, but it is the opinion about this thing wich afflects the man. So far as 
+    words then do not be unwilling to show him sympathy, and even if it happens so, to lament with him. But take care that you 
+    do not lament internally also. 
+
+17. Remember that thou art an actor in a play of such a kind as the teacher (author) may choose; if short, of a short one; 
+    if long, of a long one: if he wishes you to act the part of a poor man, see that you act the part naturally; if the part of
+    of a lame man, of a magistrate, of a private person, (do the same). For this is your duty, to act well the part that is 
+    given to you; but to select the part, belongs to others.
+
+18. When a raven has croaked inauspiciously, let not the apperance hurry you away with it; but straightway make a distinction 
+    in your main and say, None of the thse thing is signified to me, but either to my poor body, or to my small property, or 
+    to my reputation, or to my children or to my wife: but to me all significations are auspicious if I choose. For whatever 
+    of these things results, it is in my power to derive benefit from it.
+ 
+19. You can be invincible, if you enter into no contest in which it is not in your power to conquer. Take care then when you
+    observe a man honored before others or possessed of great power or highly esteemed for any reason, not to suppose him happy, 
+    and be not carried away by the apperance. For if the nature of the goods is in our power, neigher envy nor jealousy will 
+    have a place in us. But you yourself will not wish to be a general for senator or consul, but a free man: and there is 
+    only one way to this, to despise (care not for ) the things which are not in our power.
+
+20. Remnber that it not he reviles you or strikes you, who insult you, but it is your opinion about these things as being insulting.
+    When then a man irritates you, you must know that it is your own opinion which has irritated you. Therefore especilly
+    try not to be carried away by the apperance. For if you once gain time and delay, you will more easilly master yourself.
+
+21. Let death and exile and every other thing which appears dreadful be daily before your eyes; but most of all death: and you
+    will never think of anything means nor will you desire anything extravagantly.
+ 
+22. If you desire philosophy, prepare yourself from the beginning to be rediculed, to expect that many will sneer at you, and say, 
+    He has all at once returned to us as a philosopher; and whence does he get htis supercilious look for us? Do you not show
+    a supercilious look; but hold on to the things which seems to you best as one appointed by God to this station. And remember
+    that if you abide in the same priciples, these men who first ridiculed will afterward admire you: but you shall have been 
+    overpowered by them, you will bring on yourself double ridicule.
+
+23. If it should ever happen to you to be tured to externals in order to please some person, you must know that you have lost your
+    purpose in life. Be satisfied then in everthing with being a philosopher; and if you with to seem also to any person to 
+    be a philosopher, appear so to yourself, and you will be able to do this.
+
+24. Let not these thoughts afflicts you, I shall live unhonored and be nobody nowhere. For it want of honor (?) is an evil, you 
+    cannot be in evil through the means (fault) of another any more than you can be involved in anything base. It is then your 
+    bussiness to obtain the rank of a magistrate, or to be received at a banquet? By no means. How then can this be want of honor
+    (dishonor)? And how will you be nobody nowwhere, when you ought to be somebody in those things only which are in your power, 
+    in which indeed it is permitted to you to be a man of the greatest worth? But your friends will be without assistance! What 
+    do you mean by ebing without assistance? They will not receive money from you, nor will you make them Roman Citizens. When 
+    then tould yo that these are among th things which are in our power, and not in the power of othersd? And who can give to
+    another what he has not himself? Acquire money then, your friends say, thatwwe also may have something. If I can acquire 
+    money and slso keep myself modest, and faithful and magnamimous, point out the way, and I will acquire it. But if you ask
+    me to lose the things which are good and my own, in order that you may gain the things which are not good, see how unfair
+    silly you are. Besides, which would you rather have, money or a faithful and modest friend? For this end then rather help
+    me to be such a man, and do not ask me to do this by which I shall lose that character. But my contry, you say, as far as
+    it depends on me, will be without my help. I ask again, what help do yo mean? It will not have porticose or baths through you.
+    And what does this mean? For it is not furnished with shoes by means of a smith, nor with arms by means of a shoemaker. But 
+    it is enough if every man fullyu discharges the work that is his own: and if you provided it with another citizen faithful 
+    and modest, would you not be useful to it? Yes, Then you also connot be useless to it. What place the, you say, shoull i hold
+    in the city? Whatever you can, if you maintain at the same time your fidelityh and modesty, But if when you wish to be useful
+    to the state, you shall lose these qualities, what preofi could you be to it, if  you were made shameless and faithless? 
+
+25. Has any man been prefered before you at a banquet, or in being saluted, or in being invited toa consultation? If these things 
+    are good, yhou ought to rejoice that he has obtained them: but if bad, be not grieved because you have not obtainted them;
+    and remember that yhou cannot, if you do not the same things in order to obtain what is not in our power, be considered worthy 
+    of the same (euql) thing. For how can a man obtain an equal share with ntoher when he does not visit man's doors as thnat other
+    man does, when he does not attend him when he goes abroad, as the other man does; when he does not praise (flatter) him as
+    another does; You will be unjust then and insatiable, if you do not part with the price, in return for which those things are 
+    sold, and you wish to obtain them for nothing. Well, what is the price of lettuces? An obolus perhaps. If then a man gives up 
+    the obolus, and receives the lettuces, and if yhou do not give up the obolus and do not obtain the lattuces, do not suppose that
+    you receive less than he who has got the lettuces; for as he has the lettuces, so you have the obolus which you did not give. 
+    In the same way then in the other matter also you have not been invited to a man's feast, for yhou did not give to the host 
+    the prices at wich the supper is sold; but he sells it for praise (flattery), he sells it for personal attention. Given then
+    the price, if it is for yoru interest, for which it is sold. But if yo uwith both not to give the price and to obtain the things, 
+    you are insatiable and silly. Have you nothing then in place of the supper? you have indeed, you have the not falttering of him, 
+    whom you did not choose to flatter; you have the not enduring of the man when he enters the room.
+
+26. The will of nature may be learned from those events in life in which we don't differ from one another. For instance, when someone
+    else's slave-boy breaks a cup, we're ready at once to say, 'That's just one of those things'. So you should beclear, then, 
+    that if your won cup gets broken, you ought to react in exactly the same way as when someone else's does. Transfer the principle 
+    to gterater matters too. Someone else's child or wife has died/ there isn't anyone who wouldn't say, 'Such is our human lot.' And
+    yet when one's own child or wife dies, one cries out at once, 'Oh poor wretch that I am.' But we ought to remember how we feel 
+    when we hear that the same thing has happened to others.
+ 
+27. Just as a target isn't set up to be missed, so nothing that is bad by nature comes into being in the universe. 
+
+28. If someone handed over your body to somebody whom you encountered, you'd be furious; but that you hand over your mind to anyone
+    who comes along, so that, if he abused you, it becomes disturbed and confused, do you feel no shame at that? 
+
+29. In each action that you undertake, consider what comes before and what follows after, and only then proceed to the action 
+    itself. Otherwise you'll set about it with enthusiasm because you've never given any thought to the consequences that will 
+    follow, and then you'll give up in an ignominious fashion when one or another of them makes its apperance. 'I want to win an
+    Olympic victory' Well, condider what comes before and what follows after, and only then, if thre is any advantage for you in it, 
+    actually set to work. You must accept that discipline, submit to a diet, abstain from eating cakes, train under orders, at 
+    a fixed time, in heat or cold, and you mustn't drink cold water or wine just as you wish; in short, you must give youself utp 
+    to your trainer as you would to a doctor, and then, when the time comes for the context, you must set about digging, and 
+    sometimes dislocate your wrist, or sprain you ankle, and swallow quantities of sand, and get whipped-and then sometimes get
+    defeated even after all of that! When you've refleced about these things, go on then to become an athlete if you still want to; 
+    otherwise recognize that you're behaving as children do, who play at being athletes at one moment, and then at being gladiators, 
+    and then blow a trumpet, and then act out scenes that they have seen and admired. For your own part likewise, you are sometimes an
+    athlete, sometimes a gladiator, then a philosopher, then an orator, but nothing at all whole-heartedly; no, in the manner of an 
+    ape, you imitate everthing that you see, and one thing after another is always catching your fancy, but ceases to amuse you as
+    soon as you grow accustomed to it. For you've never embarked on anything after due consideration, nor after having subjected it 
+    to proper examination and tested it out, but always at random and in a half-hearted fashion.So it comes about that some people,
+    after seeing a philosopher and hearing someone talking like Euphrates - and yet who is capable of talking like him? - want to
+    become philosophers in their turn. Condider first of all, man, what it is that you're taking on, and then your own nature too
+    and what you'reable to bear. If you wanted to bea wrestler, you'd have to look at your shoulders, your back, your thighs; for 
+    different people are made for different things. Do yo usuppose that you can act as you do at present and yet bea philosopher? 
+    Do you suppose that you canas you do, drink as you do, lose your temper as you do, and be as irritable as you are? you must
+    stay up at night, toil away, overcome certain desires, become sperated from those who are close to you, suffer scorn from 
+    a little slave, be alughed at by those whom you meet, and come off worse in everthing, in power, in honour, in the courts. 
+    When you've weighed up all of this, ehen approach philosophy if  you think fit, if you're willing to give up all of this 
+    in exchange for serenity, freedom, peace of mind. Otherwires, don't come near, don't act as children do and bea philosopher 
+    at one time, and later a tax-collector, and then an orator, and then one of Caesar's procurators. Thse things don't go together
+    You must be just one main, either good or bad; you must devote your efforts either to your ruling cnetre or to external things; 
+    in otherwords, you must assume the part either of a philosopher or of a layman.
+ 
+30. Appropriate actions are measured on the whole by our social relationships. He is your father: you're obliged to take care of
+    him, to give way to him in everthing, to put up with it if he scolds you or strikes you. 'But he's a bad father'. Do the ties
+    of nature bind you, then, only to a good father? No, but to a father. 'My brother is wronging me.' Very well, maintain the
+    relation that you have towards him; don't look to what he is doing, but to what you must do if you are to keep your choice in
+    harmony with nature. For no one will cause you harm if  yhou don't wish it; you'll have been harmed only when you supposed that
+    you've been harmed. In this way, then, you'll discover the appropriate actions to expect from a neighbour, from a felow citizen, 
+    from a genera, if you get into the habit of examining yhour social relationships.
+ 
+31.1  As regds peity towards, the gods, you should know that the most important point is to hold correct opinions about them, regarding
+    them as beings who exist and govern the universe well and justly, and to have made up your mind to obey them and submit to 
+    everything that comes about, and to fall in with it of your own free will, as something that has been rbrought to pass by the highest
+    intelligence. For if you follow that course, you'll never find fault witht he gods or accuse them of having neglected you.
+31.2  But it isn't possible for you to achieve this in any other way than by withdrawing y o9ur conception of good and bad from the things
+    that are not within our power, and placing it in those things alone that are within our power. For if you regard any of the former 
+    as being good or bad, it will necessarily follow that, whenever you fail to get what you want to fall into things that you want to 
+    avoid, you'll blame and hate those who are responsible. 
+31.3  For it lies in thenature of every living creature that it should flee from and seek to avoid those things that seem harmful to it, 
+    and pusue and admire those that are helpful and all that gives rise to them. Accordingly, it is impossible for someone who thinks
+    that hes suffering harm to take pleasure in what he thinks to be responsible for that harm, just as it is impossible for hime to take 
+    pleasure in the harm itself. 
+31.4  And so it comes about that even a father is absed by his son if he fails to give him a share of the things that pass for good; and
+    it was this that caused Etocles and Polycices to become enemies: the idea that the throne was a good thing. That is why a farmer 
+    reviles the gods, and so too a sailor or merchant, and those who have lost their wives and children. For where a person's interest
+    lies, there too lies his peiety. It follows that whoever takes care to exercise his desires and aversions as he ought is taking care
+    at the same time that he'll act with piety. 
+31.5  But it is alos appropriate on each occasion to offer libations and sacrifices, and first fruits, in accordance with the customs of
+    our forebears, and do so with purity, and in no casual or perfunctory manner, and neither stingily nor beyond what we can affort.
+
+32.1  When you take resouse to divination, remember that you don't know how that matter in question will turn out, but that you've come to
+    discover that from the diviner; but if you are indeed a philosopher, you already know when you arrive what kind of thing it is. 
+    For it it is one of those things thatare not within our power, it follows with absolute certainty that it must be neigher good nor bad.
+32.2  So you should bring neither desire nor aversion to the diviner, and you shouldn't approach him with trepidation, But as  one who
+    fully recognized that every outcomes is indifferent and of no concern to you, and that whatever it may be, it will be possible for
+    you to make good use of it, and that no one can prevent you from doing so. So approach the gods with condifence, as your advisers, 
+    and afterwards, when some advice has been granted to you, remember who it is that you have taken as your advisers, and whom you will
+    be disregarding if you disobey them. 
+32.3  Resort to divination as Socrates thought right, in matters in which the enquiry relates excclusively to the outcome, and where
+    neither reason nor any technical knowledge provides the means that are required to discover the point in question. So accordingly, 
+    when it is your duty to share a friend's danger or that of your country, you shoudn't resort to divination to ask whether you should
+    share that danger. For even if the diviner should warn you that the omens from the scrifice are unfavourable, and it is clear that 
+    death is protended, or mutilation of some part of your body, or exile, reason requires all the same that, even in the face of these risks,
+    you should support your friend and share the danger of your country. Pay heed, then, to that greater diviner the Pythian Apollo, who
+    case out of his temple the man whol failed to come to the help of his friend when he was being murdered. 
+
+33.1  Lay down from this momnet a certain character adn pattern of behaviour for yourself, which you are to preserve both when you're alone and
+    when you're with others. 
+33.2  Remain silent for the most part, or say only what is essential, and in few words. Very infrequently, however, when the occasion demands, 
+    do speak, but not about any of the usual topics, not about gladiators, nor about horse-races, not about atheletes, not about food and drink,
+    the subjects of everyday talk; but above all, don't talk about people, either to praise or criticize them, or to compare them.
+33.3  If you're able to so, the, though the manner of your own conversation bring that of your companions round to what is fit and proper. But if you
+    happen to find yourself along among strangers, keep silent.
+33.4  Don't laugh much, or at many things, or without restraint.
+33.5  Refuse to swear any oath at all, if that is possible, but if it isn't, refuse as far as you're able. 
+33.6  Avoid parties that are hosted by outsiders and people who have no knowlege of philosophy, but if yo udo have occasion to attend them, 
+      take great care that you don't fall back into a layman's stage of mind. For you should be clear that if your companionb is polluted, 
+      anyone who rubs up against him is bound to become polluted too, even if he himself happens to be clean.
+33.7  In things relating to the body, take only as much as your bare need requires, with regard to food, for instance, or drink, clothes, 
+      housing, or household slaves; but excude everthing that is for show or luxury.
+33.8  As regards sexual relations, keep youself pure, so far as you can, until you marry; but if you do indulge, confine yourself to what 
+      is lowful. Don't make yourself tiresome, however, to those who indulge, or be over-critical, and don't constantly call attention to the
+      fact that you don't hehave like them.
+33.9  If someone reports to you that a certain person is speaking ill of you, don't defend youself against what has ben said, but reply instead, '
+      Ah yes, he was plainly unaware of all my other faults, or else those wouldn't have been the only ones that he mentioned.'
+33.10 There is no need to the whole to go to public shows, but if you ever have occasion to do so, show yourself as not taking sides of anyone other
+      than yourself, that is to say, wish only that what actually does happen shold happen, and that only the man who actually does win should win; 
+      for it you do that, you'll meet with no hindrance. But refrain entirely from shouting out, or laughing at anyone, or getting overexcited. 
+      And after you've left, don't tak much about what has taken place, except in so far as that contributes to your own improvement; for such
+      talk would suggest that you were impressed by the spctacle.
+33.11 Don't go acsually or readily to people's public readings; but if you do go, preserve your dignity and composure, taking care at the same 
+      time not to make yourself disgreeable. 
+33.12 When  you're due to meet somebody, and in particular one who is regared with hih respect, put this question to yourself: 'What would Socrates 
+      or Zeno have done in this situation?' And then you'll have to difficulty in making proper use of the occasion.
+33.13 When you are going to meet some very powerful man, put the thought to yourself that you won't find hime at home, that you'll be shut out, 
+      that the door will be closed in your face, that he'll pay no heed to you. And if, in spite of all that, it you duty to go, then go,
+      and put up with whatever comes about, and never tell yourself, 'it wasn't worth the trouble.' For this is the mark of a layman, of someone
+      who can be upset by externls.
+33.14 In your conversation, avoid taking at length or overmuch about your own exploits or the dangers that you've faced; for pleasant though it 
+      may be for your to recall your perils, it is not as pleasant for others to listen to everthing that has happened to you.
+33.15 Abstain too from trying to arouse laughter, for that is behaviour that can easily slip into vulgarithy, and tends at the same time to cause your 
+      neighbours to view you with less respect. 
+33.16 It is danerous like-wise to engage in smutty talk. So when anything like that comes up, you should if the ocassion presents itself, even 
+      reproach the person who has resorted to such talk; or if that isn't possible, show by your silence at least, and your blushes and frowns, 
+      that you've displeased at what is being said.
+
+34. When you receive an impression of some pleasure, take care not to get carried away by it, as with impressions in general; but rather, make it 
+    wait for you, and allow yourself some slight delay. And next, think about these two moments in time, that in which you'll enjoy the pleasure, and
+    that in which you'll come to repent after having enjoyed it and will reproach yourself; and set against all of that how you'll rejoice if you've 
+    abstained from the pleasure, and will congratulate youself for having done so. if you think, however, that a suitable occasion has come for you 
+    to engage in this task, take care that you're not overcome by its allure, and by the pleaantness and attraction of it; but set against this 
+    the thought of how much better it is to be conscious of having gained a victory over it.
+
+35. When you've decided that you ought to do something and are doing it, never try to avoid being seen to do it, never try to avoid being seen to 
+    do it, even if most people will probably view it with disapproval; for if it isn't right to do it, avoid doing it in the first place, but if 
+    it is, why be afraid of those who'll reproach you without justification?
+ 
+36. Just as the propositions 'It is day' and 'It is night' are entirely meaningul when taken seprately, but become meaningless when joined into one,
+    so likewise it may make sense with regard to your body to take the larger share at a dinner, but it makes no sense at all with regard to the 
+    maintenance of proper social feeling. So when you're eating with another person, remember to look not only at the value that the dishes set 
+    before you will have for your body, but also at the value of maintaining preper respect for your host.
+ 
+37. If you take on a role that is beyond your power, you'll not only disgrace yousefl in the role, but you'll also neglect to take on that which 
+    you might have been capable of filling.
+
+38. Just as when walking round, you take care not to tread on a nail or sprain you ankle, so take care likewise to avoid harming your rulling centre;
+    and if we observe this rule inevery action, we'll undertake the task in a more secure fashion.
+ 
+39. Each person's body is the measure for his property, as the foot is for a shoe. if you abide by this principle, then, you'll maintain due measure, 
+    but if you pass beyond it, you'll find youself falling, so to speak, over a cliff. It is the same in the case of a shoes: If you pass beyond 
+    what the foot requires, you'll first get a gilded shoe, and then a purple one, and then an embroidered one, for as soon as you've passed 
+    beyond the measure, there is no limit.
+
+40. As soon as they reach the age of fourteen, women are called mistresses by men. And so when they see that they have no other function than to 
+    become bedfellows of men, they set to work to beautify themselves, and place all their hopes in that. It is worth our while, then, to make them 
+    aware that they're valued for nothing other than being modest and self-respecting.
+
+41. It is a sign of a lack of natural aptitude to spend much time on things relating to the body, by taking a large amount of exercise, for instance, 
+    and eating too much, drinking too much, and spending to much time emptying one's bowels and copulating. No, these things should be done in passing, 
+    and you should devote undivided attention to your mind. 
+
+42. When someone acts badly towards you, or speaks badly of you, remember that he is acting or speaking in that way because he regards that as being the 
+    proper thingfor him to do. Now, it isn't possible for hime to act in accordance with what seems right to you, but only with what sees right to him. 
+    So if he judges wrongly, he is the one who suffers the harm, since his the one who has be deceived. For it anyone should think a true composite judgement 
+    to be false, the judement itself isn't harmed, but the person who has been deceived. If you start out, then, from this way of thinking, you'll be 
+    gentle with someone who abuses you, for in each case, you'll say, 'That is how it seemed to him.'
+
+43. Everything has two handles, and it may be carried by one of thse handles, but not by the other. if your brother acts wrongly towards you, don't try
+    to grasp the matter by this handle, that he is wronging you (because that is the hanle by which it can't be carried), but rather by the other,
+  that he is your borther, he was brought up with you, and then you'll be grasping the matter by the handle by which it can be carried. 
+
+44. The following assertions don't form a coherent argement: 'I'm reicher than you, therefor I'm better than you' or 'I'm more eloquent than you, 
+    therefore I'm better than yhou'; no, it is these that do: 'I'm richer than you, therefore my possessions are superior to yours', or 'I'm more
+    eloquent than you, therefor my way of speaking is superior to yours.' But you yourself are neither your possessions nor your way of speaking.
+
+45. Someone takes his bath in a hurry; don't say that he bathes badly, but that he does so in a hurry. Someone drinls a large amount of wine. Don't say
+    that he drinks badly, but that he drinks a large amount. For until you've determined from what judgement he is proceeding, how do you know 
+    whether he is acting badly? And so in that way it won't come about that you receive convincing impresssions of some things but give yhour assent to 
+    others. 
+46
+1.  Never call youself a philosopher, and don't tak among laymen for trhe most part about philosophical principles, b ut act in  accordance with those
+    principles. At a banquet, for example, don't talk about how one ought to eat, but eat as one ought. Remember how Socrates so completely renounced 
+    all outward show that when people came to hime and asked to be introduced to philosophers, he would take them along and introduce them, so readily
+    did he submit to being overlooked.
+2.  And accordingly, if any talk should arise among laymen about some philosophical principle, keep silent for the most part, for there is a great danger
+    that you'll simply vomit up what you haven't properly digested. So when the day arrives when someone tells you that you know nothing, and you, like
+    Socrates, aren't upset by that, you may be sure that you're making a start on your work as a philosopher. For sheep, too, don't vomit up their fodder
+    to show the shepherds how much they've eaten, but digest their food inside them, and produce woll and milk on the outsides. And so you likewise 
+    shouldn't show off your principles to laymen, but rather show them the actions that result from those principles when they've been properly digested.
+
+47. When you've become adapted to a simple way of life in bodily matters, don't pride youself on that, and likewise, if you drink nothing but water, don't
+    preclaim at every opportunity that you drink nothing but water. And if at any time you want to train yourself to endure hardship, do it for your own sake 
+    and not for others; don't embrace statues, but if you ever find yourself extremely thirsty, take some colde water into your mouth and then spit it out
+    again, without telling a soul. 
+
+48
+1.  The condition and character of a layman is this: that he never expects that benefit or harm will come to him rom himself, but only from externals. The 
+    condition and charcter of a philosopher is this: that he expects all benefit and harm to come to him from himself.
+2.  The signs of one who is making progress are that he critizes no one, praises no one, blames or accuses no one, and never speaks of himself as being 
+    anyone of importance, or as one who has any knowledge. And if he is praised, he laughts within at the person who is praising him, and if snyone finds
+    fault with him, he makes on defence. He goes about like an invalid, taking care not to disturb any part of him that is getting better until he has achieved 
+    lasting recovery.
+3.  He has rid himself of every desire, and has transferred his aversion to those things alone that are contrrary to nature among the things that are within our
+    own power. He is moderate in his motives whatever they may be directed towards. If he gives the impression of being foolish or ignorant, he doesn't mind.
+    In a work, he keeps guard against himself, as though he were an enemy lying in ambush for himeself. 
+
+49. When someone is filled with pride because he is able to understand and interpret the works of Chrysippus, say to yourself, 'If Chrysippus hadn't written in such an obscure 
+    style, this person wouldn't have anything to pride himself on.' But what is it that I want? To understand nature and to follow it. So I look around for someone
+    who can interpreet it, and having heard that Chrysippus can, I go to him. But i don't understand his writings, simpeity o I look for someone who can intepret them. Up to 
+    this point, there is nothing to be pround of. But when I find the interpreter, what remains for me to do is to apply his precepts; that is the only thing
+    that tives any ground for pride. But if what i value is the mre act of interpretation, what else have i achieved than to have become a literary scholar instead 
+    of a philosopher? The only difference is that I'm interpreting Chrysippus rather than Homer. So when someone says to me, "Read me some Chrysippus,' I blush
+    rather than feeling any pride, when I'm unable to show that my actions match up to his words and are consistent with them.
+ 
+50. Whatever rules of conduct are set for you, holdto them as if they were laws, as if it would be an act of impiety for you to transgress them; as to what 
+    anyone says about you, pay no heed to it, since in the end that is not your concern. 
+
+51
+1.  How much longer will you delay before you think yourself worthy of what is best, and trasgress in nothing the distinctions that reason imposes? You've 
+    acquired knowledge of the philosophical principles that you ought to accept, and have accepted them. What kind of teacher, then are still waiting for, 
+    that you should delay any effort to reform yourself until he appears? You're no longer a youth; you're a full-grown man. if you're noe negligent and idle, 
+    and are constantly making one delay after another, and setting one day and then another as the date after which you'll devote proper attention to yourself, 
+    then you'll fail to appreciate that you're makein no progress, but will continue to be a layman your whole life through until you die.
+2.  So  you should think fit from this moment to live as an adult and as one who is making progress/ and let everthing that seems best to you be an inviolable law
+    for you. And if you come up against anything that requires and effort, or is pleasant, or is glorious or inglorious, remember that this is the time of contest, 
+    that the Olympic Games have now arrived, and that there is no possibility of further delay, and that it depends on a single day and single action whether
+    progress is to be lost or secured.
+3.  It was in this way that Socrates became the man he was, by attending to nothing other than reason in everythning that he had to deaL with. And even if your've not 
+    yet a Socrates, you ought to live like someone who does in fact with to be a Scocrates. 
+
+52
+1.  The irst and most necessary area of study in philosophy is the one that deals with the application of principles, such as "Don't lie." The second deals with 
+    demonstrations, for instance, "How is it that we oughtn't to lie?" The thired confirms and analyses the other two, for instance, "How is this demonstration?"
+    For what is a memonstration, what is logical conswquence, what is logical consequence, what is contradiction, what is truth, what is falsehood? 
+2.  The third are of study is necessary, then, because of second, and the second because of first, but the most necessary, and that on which we should dwell, is the first.
+    But we do the opposite; for we spend our time on the third area of study, and empoly all our efforts on that, while wholly neglecting the first. And so it comes 
+    about that we lie, while having at hand all the argeuments that show why we oughtn't to lie.
+
+53
+1.  On every occasion we should have these arguments at hand:
+    #### Guide me, O Zeus, and thou, O Destiny, 
+    #### To wheresoever you have assigned me; 
+    #### I'll follow unwaveringly, or if my will fails, 
+    #### Base though I be, I'll follow nonetheless
+2.  #### Whoever rightly yields to necessity
+    #### We accord wise and learned in things divine.
+3.  #### "Well, Crio, if that is what is pleasing to the gods, so be it."
+4.  #### "Anytus and Meltus can kill me, but they cannot harm me."
+   
+       
+
+    
+
+      
+
+
+    
+
+
+
+
+
+
+
+    
+ 
+
+ 
+
